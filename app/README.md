@@ -1,3 +1,3 @@
-## Anon codes
+## Anon parties
 
 IYKYDK
